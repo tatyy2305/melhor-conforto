@@ -55,4 +55,5 @@ O projeto poderá ser realizado por meio de:
 Garantir o conforto térmico de alunos e professores, contribuindo para a melhoria da qualidade do ensino, do desempenho acadêmico, da participação em sala de aula e do bem-estar geral da comunidade escolar
 
 Link slides:
+
 https://canva.link/pw6vjrt25zwutav 
